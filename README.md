@@ -1,4 +1,4 @@
-# Rift-Cape
+
 Don't Sell This Code Bcz its alr leaked
 If you caught anyone selling rift.txt code
 Kindly DM Kazura#0001
